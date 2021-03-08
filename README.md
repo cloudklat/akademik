@@ -1,0 +1,2 @@
+# akademik
+Ini untuk awal 
